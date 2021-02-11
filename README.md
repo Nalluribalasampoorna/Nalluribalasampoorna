@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about anything😅😅😅😅
 - 📫 How to reach me through nalluribalasampoorna@gmail.com
 - 😄 Pronouns: she her
-- ⚡ Fun fact: ...
+- ⚡ Fun fact:secret
 
